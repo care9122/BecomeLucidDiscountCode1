@@ -1,4 +1,4 @@
-# Become Lucid Discount Code – Get 15% Off on Superfood Beverages!
+# Become Lucid Discount Code ("SFFFGKQD") – Get 15% Off on Superfood Beverages!
 
 <p align="center">
   <img src="https://res.cloudinary.com/dod2reyan/image/upload/v1740819648/become_lucid_discount_code_zhdiml.png" 
