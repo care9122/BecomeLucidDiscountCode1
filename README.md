@@ -12,10 +12,6 @@ Are you looking for a natural way to boost your focus, energy, and mental clarit
 For a limited time, you can enjoy a **15% discount** on all Become Lucid products using the promo code **"SFFFGKQD"** at checkout. This is a fantastic deal for those who want to experience the benefits of functional mushrooms and adaptogens while saving money!
 
 ## What is Become Lucid?
-<div align="center">
-  <iframe width="800" height="500" src="https://www.youtube.com/embed/FKaQ8jwMDgM" frameborder="0" allowfullscreen></iframe>
-</div>
-
 Become Lucid is a brand dedicated to offering superfood-based beverages that promote mental clarity, sustained energy, and overall wellness. Their product line includes a variety of mushroom-infused drinks, such as:
 
 - **Lucid™ Nootropic + Mushroom Coffee**
