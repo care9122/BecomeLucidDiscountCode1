@@ -1,6 +1,11 @@
 # Become Lucid Discount Code – Get 15% Off on Superfood Beverages!
 
-<img src="https://res.cloudinary.com/dod2reyan/image/upload/v1740819648/become_lucid_discount_code_zhdiml.png" alt="Image Description" width="300">
+<p align="center">
+  <img src="https://res.cloudinary.com/dod2reyan/image/upload/v1740819648/become_lucid_discount_code_zhdiml.png" 
+       alt="Image Description" 
+       width="500" 
+       height="300">
+</p>
 
 Are you looking for a natural way to boost your focus, energy, and mental clarity without the jitters and crashes of regular coffee? **Become Lucid** offers a premium range of nootropic + mushroom beverages, designed to enhance cognitive function while supporting overall well-being.
 
