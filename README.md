@@ -35,7 +35,7 @@ Unlike traditional coffee and tea, **Become Lucid beverages** provide long-lasti
 
 Using the **"SFFFGKQD"** promo code is simple. Follow these steps to claim your **15% discount**:
 
-1. **Visit the Become Lucid Website** – Go to [becomelucid.com](https://becomelucid.com) and explore their product range.
+1. **Visit the Become Lucid Website** – Go to [becomelucid.com](https://becomelucid.com/SFFFGKQD)) and explore their product range.
 2. **Choose Your Favorite Products** – Add your preferred superfood beverages to the cart.
 3. **Proceed to Checkout** – Click on the cart icon and review your order.
 4. **Enter the Discount Code** – In the promo code box, type **"SFFFGKQD"** and apply it.
